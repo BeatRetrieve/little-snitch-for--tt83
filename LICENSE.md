@@ -1,4 +1,4 @@
-
+Little Snitch for macOS premium Plugin: data-breach-alerts & system-optimization offers the most advanced Little Snitch for macOS plugin, with data-breach-alerts and
 
 
 
